@@ -7,3 +7,7 @@ I like to cook my fish by deep frying it and then when it is golden brown I add 
 ##Also, one thing I love to do is sliding on the ice with my belly. It is so funny.
 ##Huddling my friends is also a cool thing because you know, damn, it's quite cold right there.
 ##Finally, showing to people the beautiful way I am walking. Because you know, I'm a superpinguinstar.
+
+##Then, after savoring that crunchy and tasty bite, I always feel ready to dive into the icy waters.
+##I love the rolling waves and the sound of icebergs cracking in the distance.
+##It gives me incredible energy for my next fishing adventure.
