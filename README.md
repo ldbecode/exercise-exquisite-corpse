@@ -10,4 +10,7 @@ I like to cook my fish by deep frying it and then when it is golden brown I add 
 
 ##Then, after savoring that crunchy and tasty bite, I always feel ready to dive into the icy waters.
 ##I love the rolling waves and the sound of icebergs cracking in the distance.
-##It gives me incredible energy for my next fishing adventure.
+##It gives me incredible energy for my next fishing adventure.    
+My fishing rod started vibrating like it just drank three espressos.  
+A fish looked at me like I was the one getting caught.  
+I slipped on a rock and invented a new dance: **the salmon shuffle**.  
